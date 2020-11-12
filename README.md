@@ -1,1 +1,1 @@
-# StarD.github.io.
+# StarD.github.io
